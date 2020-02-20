@@ -9,5 +9,5 @@ President
 
 (435) 817 - 7222
 
-[caseykimzey@ctvsoftware.com](to:caseykimzey@ctvsoftware.com)
+[caseykimzey@ctvsoftware.com](mailto:caseykimzey@ctvsoftware.com)
 
